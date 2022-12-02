@@ -5,4 +5,4 @@
 - 🎸 I'm probably preparing for worship on Sunday right now...
 - 🌱 ...or doing some gardening.
 
-Contact: https://lukasdumberger.de / lukas.dumberger@gmail.com
+Contact: https://lukasdumberger.de / lukas.dumberger@gmail.com / <a rel="me" href="https://fosstodon.org/@dumbergerl">Mastodon</a>
